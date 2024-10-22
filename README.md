@@ -28,4 +28,4 @@ Safety is paramount. AstroX  is frequently updated to ensure it remains undetect
 
 Join our community for updates, script sharing, and more:
 - [Discord](https://discord.gg/HGUZqejffB)
-- 
+

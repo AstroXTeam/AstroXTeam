@@ -2,7 +2,7 @@
 
 Welcome to ** AstroXTeam | Community ** – the pinnacle of Roblox exploiting. Designed with cutting-edge technology, our exploit not only stands out in the crowd but also sets a benchmark for what a Roblox exploit can achieve.
 
-![AstroX Banner](https://media.discordapp.net/attachments/1297939097507201166/1298262567592136715/14_20241022152039.png?ex=6718ecbc&is=67179b3c&hm=cff8ee134bf75090e597f36c0a43f9e833e188e18c40440f1715db616b848721&)
+![AstroX Banner](https://media.discordapp.net/attachments/1297939097507201166/1298263346348425296/14_20241022152152_3.png?ex=6718ed76&is=67179bf6&hm=46dbd828e6050a14317723214b5fb584a0329361574f1a387a9b3dd889fba415&)
 
 ## 🌟 Features
 
